@@ -11,3 +11,7 @@ The program requires the joint support of all transgender and transgender suppor
 
 For a specific plan, click on the "Wiki" above to view it
 
+本网站的英文均由“Bing”翻译进行机械翻译，有错误还请谅解
+
+The English language of this website is mechanically translated by "Bing Translation" and please understand if there are any errors
+
