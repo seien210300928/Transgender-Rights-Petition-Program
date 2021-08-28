@@ -15,3 +15,6 @@ For a specific plan, click on the "Wiki" above to view it
 
 The English language of this website is mechanically translated by "Bing Translation" and please understand if there are any errors
 
+过于长的描述我们将不再进行主动翻译，请您自行使用其他“浏览器插件”或者“翻译软件”
+
+Too long to describe we will no longer actively translate, please use other "browser plug-ins" or "translation software"
